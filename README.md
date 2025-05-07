@@ -1,1 +1,0 @@
-# TubesSDA_SistemPariwisata
